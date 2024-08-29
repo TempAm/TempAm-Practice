@@ -1,1 +1,0 @@
-# TempAm-Practice
